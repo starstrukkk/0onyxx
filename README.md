@@ -6,6 +6,6 @@
 <p align="center" width="100%">
 <p align='center'>$\text{\color{#787878}{fuku ! ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⊂ ‎ ‎ ‎ ‎ ‎ ‎ ◞ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ໋ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ dyslexic‎ ‎ 
 }}$ <br>
-    <p align='center'>$\text{\color{#555555}{deadpool / wade ‎ ‎ ⺡ ‎ ‎ fictkin ‎ ‎ ‎ ‎ ⿻  ‎ ‎ 🦴
+    <p align='center'>$\text{\color{#555555}{english ‎ ‎ ⺡ ‎ ‎ chinese ‎ ‎ ‎ ‎ ⿻  ‎ ‎ 🦴
 }}$ <br>
 <p align="center" width="100%">
