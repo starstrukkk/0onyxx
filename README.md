@@ -1,1 +1,3 @@
-![alt text](https://media.discordapp.net/attachments/1144205218943340547/1314551831564652554/Untitled751_20241206191930.png?ex=67542f4b&is=6752ddcb&hm=a4ff7b856c10be5b291ed32262b5b5fc2abfba0803c9637428414347faad3990&)
+<p align="center"><img width="50%" src="https://media.discordapp.net/attachments/1144205218943340547/1317726041229230131/IMG_8789.jpg?ex=675fbb82&is=675e6a02&hm=11a0c2d6c9f1ef1c785d035537d3324e27861212796d784ecacc9333f72d2120&">
+</p>
+<p align="center">and micheal fassbender 😋
