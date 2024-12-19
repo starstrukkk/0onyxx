@@ -1,2 +1,2 @@
-![](https://komarev.com/ghpvc/?username=0onyxx&color=AA9D89)  
+![](https://komarev.com/ghpvc/?username=0onyxx&color=2f3b4d)  
 wip
